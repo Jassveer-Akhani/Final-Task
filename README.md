@@ -1,1 +1,1 @@
-https://jasveerkumar.netlify.app/
+https://jasverrkumar.netlify.app/
